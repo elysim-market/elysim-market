@@ -57,7 +57,7 @@ We recommend **Monero (XMR)** for maximum anonymity.
 - Withdraw funds immediately after transactions  
 - Bookmark official URLs to avoid phishing
 
-<a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/static/1ogin.png" alt="Secure Elysim Market Login" style="max-width: 100%;"></a>
+<a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/static/inspect.webp" alt="Secure Elysim Market Login" style="max-width: 100%;"></a>
 
 ---
 
