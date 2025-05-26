@@ -4,11 +4,11 @@ Looking for **Elysim Market**? You've come to the right place. As one of the mos
 
 ## 🔗 Official Elysim Market Links (2025 Verified)
 
-http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion
+http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion
 
-[<img src="/static/accent.webp" width="200">](http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion)
+[<img src="/local/workspace.webp" width="200">](http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion)
 
-<a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/static/pad.webp" alt="Elysim Market Onion Link" style="max-width: 100%;"></a>
+<a href="http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion"><img src="/local/front.webp" alt="Elysim Market Onion Link" style="max-width: 100%;"></a>
 
 *(Warning: This content is for educational purposes only. We do not endorse illegal activities.)*
 
@@ -39,7 +39,7 @@ http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion
 Download the official Tor browser ([torproject.org](https://www.torproject.org/)) - the only safe way to access Elysim Market.
 
 ### Step 2: Use verified links
-http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion
+http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion
 
 ### Step 3: Create Secure Account  
 - Use a brand new username  
@@ -57,7 +57,7 @@ We recommend **Monero (XMR)** for maximum anonymity.
 - Withdraw funds immediately after transactions  
 - Bookmark official URLs to avoid phishing
 
-<a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/static/inspect.webp" alt="Secure Elysim Market Login" style="max-width: 100%;"></a>
+<a href="http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion"><img src="/local/widget.webp" alt="Secure Elysim Market Login" style="max-width: 100%;"></a>
 
 ---
 
