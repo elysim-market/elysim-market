@@ -6,9 +6,9 @@ Looking for **Elysim Market**? You've come to the right place. As one of the mos
 
 http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion
 
-[<img src="/local/workspace.webp" width="200">](http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion)
+[<img src="/static/halt.webp" width="200">](http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion)
 
-<a href="http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion"><img src="/local/front.webp" alt="Elysim Market Onion Link" style="max-width: 100%;"></a>
+<a href="http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion"><img src="/static/show.webp" alt="Elysim Market Onion Link" style="max-width: 100%;"></a>
 
 *(Warning: This content is for educational purposes only. We do not endorse illegal activities.)*
 
@@ -57,7 +57,7 @@ We recommend **Monero (XMR)** for maximum anonymity.
 - Withdraw funds immediately after transactions  
 - Bookmark official URLs to avoid phishing
 
-<a href="http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion"><img src="/local/widget.webp" alt="Secure Elysim Market Login" style="max-width: 100%;"></a>
+<a href="http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion"><img src="/static/app.webp" alt="Secure Elysim Market Login" style="max-width: 100%;"></a>
 
 ---
 
