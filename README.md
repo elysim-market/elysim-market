@@ -85,4 +85,6 @@ This guide exists purely for academic research into darknet technologies. Access
 
 
 
-Update: Link is now operational and accessible
+
+
+Update:  Monday 23 June 2025 Fixed dead external links in changelog
